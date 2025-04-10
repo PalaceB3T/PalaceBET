@@ -7,6 +7,6 @@
 </a>
 <div class="description">
 
-<img src="https://r.resimlink.com/DyRkvluxd.webp" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<img src="https://r.resimlink.com/AfC0Ur-n_.webp" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
  
 # <p>PalaceBeT , her geçen gün büyüyen kullanıcı kitlesi ile sektördeki yerini sağlamlaştırıyor. 🌟 Eğlenceli ve kazanç dolu bir bahis deneyimi için PalaceBeT’in güncel giriş adresini takip edin ve avantajlardan faydalanın!</p>
